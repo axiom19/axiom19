@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @axiom19
-- 👀 I’m interested in upbring my coding level
+- 👀 I’m interested to upbring my coding level
 - 🌱 I’m currently learning how to code like a pro
 - 💞️ I’m looking to collaborate on any projects that are based on python language
 - 📫 Mail me on shagundeepsingh80@gmail.com or add me on snapchat @shagunsingh10
